@@ -1,12 +1,13 @@
-
-<p align="center">
- ♡
-</p>
-<p align="center">
-<img width="900" height="900" alt="Untitled56_20251110164020" src="https://github.com/user-attachments/assets/6cd5e2dd-cbda-4ea4-8f3f-4dd8557f11f4" />
+> how nice how nice,
 
 
-</p>
+   ![lonely-club-hatsune-miku](https://github.com/user-attachments/assets/5529d551-7dee-401c-8e80-407c52c5f807)
+
+> our lovely club is! 
+
+
+
+
 
 
 [ata](https://hello-annie.atabook.org/) 
